@@ -8,11 +8,6 @@
 
 备用地址:  https://266xh.vip
 
-TG机器人: https://t.me/xihu_labot 
-
-TG频道号: https://t.me/yhylbet 
-
-在线支持: https://t.me/yinheURL
 
 
 ## 🔔 使用须知
